@@ -1,2 +1,2 @@
-# Angelito Hizon Page
-Stuffs and everything. :)
+# gelhizon.github.io 
+:)
